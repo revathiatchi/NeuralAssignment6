@@ -4,7 +4,10 @@
 
 
 
-https://github.com/revathiatchi/NeuralAssignment6/assets/156601745/3b6d7dfb-7279-478c-8540-5fafc6b51a24
+
+
+https://github.com/revathiatchi/NeuralAssignment6/assets/156601745/b33b1c47-94e6-4513-a588-3d0e047d0f8e
+
 
 
 
